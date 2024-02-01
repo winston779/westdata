@@ -1,6 +1,6 @@
 # WestData西部数据机场官网地址
 
-最新地址：[fuqing.cz](https://fuqing.cz/aff.php?aff=4819)
+最新地址：[fuqing.cz](https://fuqing.ch/aff.php?aff=4819)
 
 ## WestData介绍
 
